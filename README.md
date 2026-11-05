@@ -1,1 +1,1 @@
-# swp-gruppe-proejkt
+# swp-gruppe-projekt
